@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MISTERCYB3R
 - 👀 I’m interested in Video Games, Self Hosting thinks, Linux
-- 🌱 I’m currently learning how to Fulfill my life.
+- 🌱 I’m currently learning how to fulfill my life.
 - 💞️ I’m looking to collaborate on anything.
 - 📫 https://discord.gg/pPAhavWY3k
 
